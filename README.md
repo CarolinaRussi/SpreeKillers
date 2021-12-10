@@ -25,7 +25,7 @@ https://murderpedia.org/male.L/l/leonski-edward.htm
 https://oavcrime.com.br/2017/11/16/edward-leonski-o-serial-killer-do-brownout/
 
 
-Genildo Ferreira de França
+Genildo Ferreira de França:
 
 https://nominuto.com/noticias/policia/doze-anos-de-um-massacre-que-virou-documentario/32368/
 
